@@ -1,2 +1,2 @@
-- WIllian
-- Gabriela
+- Willian
+- Gabriela Riedel
